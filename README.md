@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development 
 - 🌱 I’m currently learning 3D Modelling
 - 💞️ I’m looking to collaborate on anything art or coding related
-- 📫 How to reach me @mhd.haikalff
+- 📫 How to reach me @mhd.haikalff (my instagram)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like to skateboard everywhere
 
